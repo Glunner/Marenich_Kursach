@@ -1,2 +1,0 @@
-# Marenich_Kursach
-Курсавой
